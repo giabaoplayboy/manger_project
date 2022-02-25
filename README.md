@@ -1,1 +1,0 @@
-# manger_project
